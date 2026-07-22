@@ -1,1 +1,0 @@
-# wasurenbo-obake
